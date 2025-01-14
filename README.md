@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on litteraly nothing lol
 - 📫 How to reach me: a_guy_who_likes_fries on Discord, blint324gd@gmail.com on Gmail
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Im Bisexual
+- ⚡ Fun fact: Im a Geographist
