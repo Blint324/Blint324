@@ -1,7 +1,1 @@
-- 👋 Hi, I’m @Blint324
-- 👀 I’m interested in Coding, Geography, And Vexioligy
-- 🌱 I’m currently learning Python
-- 💞️ I’m looking to collaborate on ProShell
-- 📫 How to reach me: blint324gd@gmail.com on Gmail
-- 😄 Pronouns: He/Him
-- ⚡ Fun fact: Im a Geographist
+no
